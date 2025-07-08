@@ -1,2 +1,0 @@
-# Farah.birthday-
-Birthday 
